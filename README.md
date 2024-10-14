@@ -1,1 +1,1 @@
-Hello there, it's nice to meet you, have a great day
+Hello there, this github is free, you are allow to play things on it. 
